@@ -1,2 +1,0 @@
-# vandellz.github.io
- evrbfcsc
